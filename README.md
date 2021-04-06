@@ -1,1 +1,1 @@
-http://wwwjsngbt.com
+https://jsngbt.com
